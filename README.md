@@ -1,3 +1,3 @@
 # diagram-construction-site
-uni shit <\b>
+uni shit...
 Diagrams (-.-)
